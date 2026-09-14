@@ -11,20 +11,16 @@
 PT only account 
 </div>
 <p align="center">
-  I'm 16 y.o / minor . pls int if you're comfortable 
-</p>
-<p align="center">
-  <img src="https://i.postimg.cc/rFjzPswC/1789410060488.png">
-</p>
-
-<p align="center">
-   DNI ✦
+  DNI ✦
 
 weirdos • bigots • proshippers  
 homophobes • transphobes • racists
 people who disrespect boundaries  
 people who start unnecessary drama  
 basic dni criteria
+</p>
+<p align="center">
+  <img src="https://i.postimg.cc/rFjzPswC/1789410060488.png">
 </p>
 <p align="center">
 𔕛
