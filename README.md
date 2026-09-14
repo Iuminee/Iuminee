@@ -7,20 +7,9 @@
     <img src="https://readme-typing-svg.demolab.com?font=monospace&size=16&duration=1000&pause=3000&color=E2D6A3&center=true&vCenter=true&width=500&lines=sign+ata+for+a+hug+!+" />
   </a>
 </p>
-<div align="center">
-PT only account 
-</div>
 <p align="center">
-  DNI ✦
-
-weirdos • bigots • proshippers  
-homophobes • transphobes • racists
-people who disrespect boundaries  
-people who start unnecessary drama  
-basic dni criteria
-</p>
+𔕛
+  
 <p align="center">
   <img src="https://i.postimg.cc/rFjzPswC/1789410060488.png">
 </p>
-<p align="center">
-𔕛
