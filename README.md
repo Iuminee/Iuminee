@@ -18,7 +18,7 @@ PT only account
 </p>
 
 <p align="center">
-   dni ✦
+   DNI ✦
 
 weirdos • bigots • proshippers  
 homophobes • transphobes • racists
@@ -26,3 +26,5 @@ people who disrespect boundaries
 people who start unnecessary drama  
 basic dni criteria
 </p>
+<p align="center">
+𔕛
