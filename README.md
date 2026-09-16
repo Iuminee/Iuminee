@@ -14,6 +14,13 @@
 
 </div>
 
+<p align="left">
+  <span> elika / rosalyn ‌ ‌ ‌ ‌ ︴ ‌ ‌‌ ‌  prns: she/her
+ ‌ ‌ ‌ ‌ ‌ bisexual ‌ ‌ ‌ ‌ թersian/ᥱᤢng‌ ‌  /ᐠ - ˕ -マ Ⳋ </span>
+  <img align="right" src="https://i.postimg.cc/Nfjr98PK/Untitled97-20260916182423.png" width="250">
+</p>
 
 
-</div>
+
+
+
