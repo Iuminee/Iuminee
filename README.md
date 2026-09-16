@@ -19,21 +19,8 @@
  ‌ ‌ ‌ ‌ ‌ bisexual ‌ ‌ ‌ ‌ թersian/ᥱᤢng‌ ‌  /ᐠ - ˕ -マ Ⳋ </span>
   <img align="right" src="https://i.postimg.cc/Nfjr98PK/Untitled97-20260916182423.png" width="250">
 </p>
+<div align="center">
 
-
-
-
-
-
-
-
-
-
-
-
-<p align="left">
-</span> introvert !! pls be patient with me I might reply slowly 
-
-
+<img src="https://i.postimg.cc/0NLxW6GQ/In-Shot-20260916-211857932.png" width="300">
 
 
