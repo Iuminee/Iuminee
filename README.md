@@ -40,4 +40,8 @@ BYI: • introverted + socially awkward so I might reply late or not talk much p
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Euphoria+Script&size=42&duration=3500&pause=1000&color=8FA9B5&center=true&vCenter=true&width=800&lines=Heavy+Lumine+Kin+%21)](https://git.io/typing-svg)
 
+</div> <div align="center">
+
+<img src="https://i.postimg.cc/QxWzm64M/Untitled97-20260916182439.png" width="30" height="30">
+
 </div>
