@@ -28,7 +28,7 @@ DNI: proshippers/comshippers, ponycest or incest supporters, bigots, pony copier
 </div>
 <div align="center">
 
-<img src="https://i.postimg.cc/0NLxW6GQ/In-Shot-20260916-211857932.png" width="300">
+<img src="https://i.postimg.cc/VkQq84YX/Untitled99-20260916211117.png" width="300">
 <div align="center">
 BYI: • introverted + socially awkward so I might reply late or not talk much pls don’t take it personally! • I’m often afk so I might miss your whispers, I’ll reply when I see them • I’m 16! If you’re uncomfortable 
 <div align="center">
@@ -45,3 +45,6 @@ BYI: • introverted + socially awkward so I might reply late or not talk much p
 <img src="https://i.postimg.cc/QxWzm64M/Untitled97-20260916182439.png" width="30" height="30">
 
 </div>
+<div align="center">
+
+<img src="https://i.postimg.cc/kg2WKZfQ/Untitled101-20260916192957.png" width="300">
