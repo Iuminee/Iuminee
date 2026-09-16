@@ -22,5 +22,8 @@
 <div align="center">
 
 <img src="https://i.postimg.cc/0NLxW6GQ/In-Shot-20260916-211857932.png" width="300">
+<div align="center">
 
+DNI: proshippers/comshippers, ponycest or incest supporters, bigots, pony copiers/stealers/colorpickers, boundary breakers, forced interactions & drama starters, Homophobes, Transphobes, Racists, Dottore haters HEAVY DNI
+</div>
 
