@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src="https://i.postimg.cc/QdbcXZZ9/1789432644501.png" 
+  <img src="https://i.postimg.cc/zDxhpRT9/Untitled96-20260916171455.png" 
 </p>
 <p align="center">
   <a href="https://readme-typing-svg.demolab.com/">
