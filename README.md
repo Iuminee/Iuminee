@@ -26,4 +26,18 @@
 
 DNI: proshippers/comshippers, ponycest or incest supporters, bigots, pony copiers/stealers/colorpickers, boundary breakers, forced interactions & drama starters, Homophobes, Transphobes, Racists, Dottore haters HEAVY DNI
 </div>
+<div align="center">
 
+<img src="https://i.postimg.cc/0NLxW6GQ/In-Shot-20260916-211857932.png" width="300">
+<div align="center">
+BYI: • introverted + socially awkward so I might reply late or not talk much pls don’t take it personally! • I’m often afk so I might miss your whispers, I’ll reply when I see them • I’m 16! If you’re uncomfortable 
+<div align="center">
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Euphoria+Script&size=28&duration=3500&pause=1000&color=9A9795&center=true&vCenter=true&width=700&lines=Please+be+patient+and+respect+my+boundaries)](https://git.io/typing-svg)
+
+</div>
+<div align="center">
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Euphoria+Script&size=42&duration=3500&pause=1000&color=8FA9B5&center=true&vCenter=true&width=800&lines=Heavy+Lumine+Kin+%21)](https://git.io/typing-svg)
+
+</div>
