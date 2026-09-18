@@ -30,7 +30,7 @@ DNI: proshippers/comshippers, ponycest or incest supporters, bigots, pony copier
 
 <img src="https://i.postimg.cc/VkQq84YX/Untitled99-20260916211117.png" width="300">
 <div align="center">
-BYI: • introverted + socially awkward so I might reply late or not talk much pls don’t take it personally! • I’m often afk so I might miss your whispers, I’ll reply when I see them • I’m 16! If you’re uncomfortable 
+BYI: • introverted + socially awkward so I might reply late or not talk much pls don’t take it personally! • I’m often afk so I might miss your whispers, I’ll reply when I see them • I’m a minor so please DNI if you're above 19 unless we're friends 
 <div align="center">
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Euphoria+Script&size=28&duration=3500&pause=1000&color=9A9795&center=true&vCenter=true&width=700&lines=Please+be+patient+and+respect+my+boundaries)](https://git.io/typing-svg)
